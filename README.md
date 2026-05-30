@@ -2,7 +2,6 @@
 
 ***Bonesaw , Saw*** ╰⌣⌣ ᢉ𐭩
   *19, taken, nerodivergent, yumeshipper, multishipper, fictkin* 
-    
-![](https://postimg.cc/ftccBGC0)
+  ![](https://postimg.cc/ftccBGC0)
 
 why wont it show
